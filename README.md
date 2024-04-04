@@ -1,1 +1,1 @@
-# Patrimi-Nehasri-Dhanalakshmi
+# Parimi-Nehasri-Dhanalakshmi
